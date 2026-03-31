@@ -1,1 +1,1 @@
-# Isekai-no-kagaku-hakase
+# 異世界 の 科学 博士
